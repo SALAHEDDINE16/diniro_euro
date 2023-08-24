@@ -1,0 +1,1 @@
+# diniro_euro
